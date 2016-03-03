@@ -2,6 +2,8 @@
 title: Upcoming Events This Winter/Spring
 ---
 
+EDIT: Dinner & Drinks moved to April 15th. First Friday event moved to May 6th.
+
 ### Board Game Night
 
 March 10th  
