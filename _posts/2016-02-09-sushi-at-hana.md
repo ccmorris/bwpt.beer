@@ -2,6 +2,8 @@
 title: Sushi at Hana
 ---
 
+EDIT: Thanks to all who attended, had a great time!
+
 Beer, Wings, and Professional Things is going to Sushi!
 
 Thursday, February 18, 2016 at 6:30PM
