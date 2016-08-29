@@ -7,9 +7,10 @@
 
 # Site settings
 title: Beer, Wings, and Professional Things
+slogan: A social group in Sarnia
 description: >
-  We are a group of young professional looking to meet new people while
-  participating in events locally in Sarnia, ON.
+  We are a group of young professionals looking to meet new people while
+  participating in social events locally in Sarnia, ON.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://bwpt.beer" # the base hostname & protocol for your site
 
