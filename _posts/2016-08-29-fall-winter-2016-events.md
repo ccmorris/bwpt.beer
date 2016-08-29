@@ -15,7 +15,7 @@ Come hang out downtown and enjoy the festivities of First Friday
 More details to come
 
 ### Pre-Halloween Bash
-Friday, October 28, 2016
+Date TBA
 Get in the halloween spirit a few days early!
 Costumes, pumpkins, candy!
 
