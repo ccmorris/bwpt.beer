@@ -10,6 +10,7 @@ Must RSVP to Natasha by September 9th at latest.
 
 
 ### First Friday
+EDIT: This event is CANCELLED due to thanksgiving weekend.  
 Friday October 7th  
 Come hang out downtown and enjoy the festivities of First Friday  
 More details to come
