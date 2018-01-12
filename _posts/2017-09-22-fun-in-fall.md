@@ -3,6 +3,9 @@ title: Fun in Fall
 ---
 
 ### Beer & Wings
+
+EDIT: Had a great time at wing night! Thanks for coming out everyone!
+
 Contrary to our name, we have yet to host a wing related event... so here it is!  
 November 22, 2017 at 6pm  
 Two Amigos  
